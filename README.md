@@ -27,7 +27,7 @@
 
 + Bake for 30 to 35 minutes in the preheated oven, until a toothpick inserted comes out clean. Cool for 10 minutes before removing from pans to cool completely.
 
-+ To make the frosting, use the second set of ingredients. Cream butter until light and fluffy. Stir in the cocoa and confectioners' sugar alternately with the milk and vanilla. Beat to a spreading consistency.
++ To make the frosting, use the second set of ingredients . Cream butter until light and fluffy. Stir in the cocoa and confectioners' sugar alternately with the milk and vanilla. Beat to a spreading consistency.
 
 + Split the layers of cooled cake horizontally, cover the top of each layer with frosting, then stack them onto a serving plate. Frost the outside of the cake.
 
